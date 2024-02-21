@@ -1,1 +1,1 @@
-Wildan fadillah_20230040049_Informatics Engineering
+Wildan Fadillah_20230040049_Informatics Engineering
