@@ -1,1 +1,2 @@
 Wildan Fadillah_20230040049_Informatics Engineering
+Ibrahim Gustav Amany_20230040077_Informatics Engineering
