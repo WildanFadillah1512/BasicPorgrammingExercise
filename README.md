@@ -9,3 +9,5 @@ Muhammad Rigi Yuda Syahrial_20230040116_Informatics Engineering
 Mohammad Naufal Maulana_20230040070_Informatics Engineering
 
 Akmal Zaidan Hibatullah_20230040065_InformaticsEngineering
+
+Enjeli_20230040058_Informatics Engineering
